@@ -1,4 +1,4 @@
-
+Get ahead in rivals with rivals custom Scripts, featuring one-hit kill and infinite resources. Download now to dominate every match with ease and confidence, thanks to its
 
 
 
